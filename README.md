@@ -1,3 +1,5 @@
-Najee010.github.io
 
-made for fun ^ check it out
+
+[Najee010.github.io](Najee010.github.io)
+
+check it out ^ :)
